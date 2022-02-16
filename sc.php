@@ -30,7 +30,7 @@
             <img src="https://i.postimg.cc/3xgBgHjp/0xNix.png" width="210" height="155">
             <font size="2"><br>security is just an illusion<br> </font><br>
             <font size="2"><i>Greetz:</i><br>
-           0xShall - DENNI5.ID - Zero9Fadera - Culutax07 - ./FakeRoot - Mr'Pl4NKT0N - Caisar ID
+           0xShall - DENNI5.ID - Zero9Fadera - Culutax07 - ./FakeRoot - Mr'Pl4NKT0N - X404_LOSER
             <br>
             <br>
             <br>
